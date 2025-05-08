@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working on a project for a company! Open for new projects.
+Open for new projects.
 
 
 ## 🌐 Socials:
